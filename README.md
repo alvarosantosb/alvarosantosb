@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @alvarosantosb
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning a lot of stuff
